@@ -5,3 +5,7 @@ Ut ullamco commodo non proident deserunt irure nisi culpa reprehenderit aliqua i
 Eu ad cupidatat mollit duis occaecat occaecat occaecat incididunt fugiat voluptate fugiat. Reprehenderit minim elit adipisicing ut do tempor exercitation mollit deserunt. Ex exercitation tempor sint adipisicing. In esse est quis mollit ipsum eu sit esse irure proident consectetur non.
 
 Les glaces à la vanille c'est super bon (lol)
+
+Oui je suis d'accord, mais si je peux préciser quelque chose, c'est encore meilleur quand c'est une glace à l'italienne.
+
+Et surtout les manger devant <strong><i>le tour de France</i></strong>, c'est Thomas qui me l'a dit.
