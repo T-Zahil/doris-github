@@ -10,8 +10,10 @@ Les glaces à l'italienne sont meilleures !
 Les glaces à la vanille c'est super bon (lol)
 
 
+
+Le tour de France n'est pas vraiment le tour de la France... Sûrement un coup des Illluminatis!
+
+
 H-3 AVANT LE WEEKEND !!! 🎉🎉🎉
 
 la modif
-
-
